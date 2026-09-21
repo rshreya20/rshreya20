@@ -220,7 +220,7 @@ Alongside AI/ML, I'm continuing to strengthen my understanding of:
 
 # 🤝 Let's Connect
 
-💼 **LinkedIn:** [linkedin.com/in/shreya-rai](https://www.linkedin.com/in/shreya-rai)
+💼 **LinkedIn:** [linkedin.com/in/shreya-rai](linkedin.com/in/shreya-rai-3a27aa28a/)
 
 📧 **Email:** [shreyarai7777@gmail.com](mailto:shreyarai7777@gmail.com)
 
